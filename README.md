@@ -1,2 +1,0 @@
-# elizabethcardenasxy.github.io
-website
